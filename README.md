@@ -1,5 +1,8 @@
 
 
+The Stori Of A Degen Who Lost $1000
+
+
 My name is Diki.
 
 I'm not a whale. I'm not a KOL. I'm just a degen from a small town in South Sumatra, trading from my phone at midnight while everyone else is sleeping.
