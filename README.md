@@ -1,6 +1,4 @@
-# Degenidakjadi
-The Stori Of A Degen Who Lost $1000
-THE STORY OF A DEGEN WHO LOST $1,000
+
 
 My name is Diki.
 
