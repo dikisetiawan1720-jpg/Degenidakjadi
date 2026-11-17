@@ -1,6 +1,6 @@
 
 
-The Stori Of A Degen Who Lost $1000
+The Story Of A Degen Who Lost $1000
 
 
 My name is Diki.
